@@ -5,6 +5,5 @@
 - 📫 How to reach me ...
 
 <!---
-ITZ-AKIO/ITZ-AKIO is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+Hello You are born just like GOD wanted you to so don't doubt yourself. You are beautiful just the way you are. A PERFECT BODY WITH A PERFECT SMILE. LOVE YOUR BODY AND YOURSELF.
 --->
